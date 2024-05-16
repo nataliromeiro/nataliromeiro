@@ -7,4 +7,10 @@ meu nome é Nátali Romeiro
 -utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ## Voce entrar em contato comigo 📧
-@nataliromeiro21@gmail.com
+@linromeiro21@gmail.com
+
+@linromeiro
+
+
+![](![image](https://github.com/nataliromeiro/nataliromeiro/assets/169815809/fc5e9806-20a4-46c7-81b9-8f0d082c9eae)
+)
