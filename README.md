@@ -13,4 +13,3 @@ meu nome é Nátali Romeiro
 
 
 ![](![image](https://github.com/nataliromeiro/nataliromeiro/assets/169815809/fc5e9806-20a4-46c7-81b9-8f0d082c9eae)
-)
